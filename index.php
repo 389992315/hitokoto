@@ -5,7 +5,7 @@
 最后更新时间:2017/10/04 15:57
 作者:狂放
 作者博客:https://www.iknet.top
-作者地址:https://www.iknet.top/hitokoto.html
+作者地址:https://www.iknet.top/568.html
 原作者:小霖
 原作者博客:https://xiaolin.in/
 原作者地址:https://xiaolin.in/read/hitokoto-api-xiaolin-edition.html
